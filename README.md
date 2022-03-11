@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Mariosimonsen
+- 👀 I’m interested in learning programming
+- 🌱 I’m currently learning python
+- 📫 How to reach me Email: Mariosim93@gmail.com or discord Habibi#7084
